@@ -2,7 +2,6 @@
 
 Our next meeting will be at Conor Flynn's on November 19th @ 7pm (*tentatively*)
 
-We will be reading 18 Platoon by Sydney Jary
+We will be reading [One Bullet Away: The Making of a Marine Officer](https://www.goodreads.com/book/show/116478.One_Bullet_Away) 
+by Nathaniel Flick
 
-[Amazon](https://www.amazon.com/18-Platoon-Sydney-Jary/dp/0951207806/ref=sr_1_1?ie=UTF8&qid=1506109155&sr=8-1&keywords=18+platoon)
-[Goodreads](https://www.goodreads.com/book/show/1860245.18_Platoon?ac=1&from_search=true)
